@@ -1,1 +1,1 @@
-# Un-futuro-del-lavoro-migliore-inclusivo-sostenibile-umano
+# Un-futuro-del-lavoro-migliore
